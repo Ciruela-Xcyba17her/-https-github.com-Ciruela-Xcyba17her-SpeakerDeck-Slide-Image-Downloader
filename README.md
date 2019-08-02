@@ -1,0 +1,1 @@
+# -https-github.com-Ciruela-Xcyba17her-SpeakerDeck-Slide-Image-Downloader
